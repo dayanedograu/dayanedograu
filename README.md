@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @dayanedograu
 - 👀 I’m interested i...ganhar muito money $$
-- 🌱 I’m currently learning ...nada
+- 🌱 I’m currently learning ...eu estou aprendedo a programar recentemente a linguagem javaScript e scrath
 - 💞️ I’m looking to collaborate on ...minha vida
 - 📫 How to reach me ...em mi casa
+- @  Meu email de contato ... dayane.jesus.pereira@escola.pr.gov.br
